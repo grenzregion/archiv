@@ -1,0 +1,53 @@
+
+---
+layout: post
+title: "Forststeine"
+date: 2025-09-17
+categories: [Geschichte, Merzig]
+---
+Forstgrenzen und Forststeine   März 2022
+Forststeine habe ich bis jetzt an sieben verschiedenen Stellen gefunden.
+Und eine Begrenzung oder ein Areal mitten im Wald. Dieses Areal ist auf einer alten Karte eingezeichnet. Und zwei oder drei Grenzsteine habe ich dort auch schon entdeckt. 
+Ein ähnliches Areal befindet sich im Frombüsch und ist auf einer älteren Karte eingezeichnet. 
+Eine Untersuchung wird noch erfolgen.
+Heidwald Büdinger Seite, Seite Waldwieserstr.
+Frombüsch Büdinger Seite
+Heidwald Seite Biogasanlage
+Großen Wald von der  der Landstr 381 bis zum Eichholz
+Eichholz Seite Richtung Silwingen
+Eichholz Seite Richtung Oberesch
+Areal im Eichholz
+Areal im Frombüsch zumHeidwald ? 
+
+Forststeine „Großen Wald“
+Von der heutigen Landstraße 381 geht es den Hügel hoch am Wald entlang.
+Diese Forstgrenze ist schon auf den ersten Karten zu erkennen.
+Laufende Nummern 5 und 6 wurden gefunden.
+Auf Stein Nummer 6 ist noch ein A zu erkennen.
+Was das A bedeutet ist unbekannt.
+Beide Steine lagen im Boden ein wenig eingegraben und sind abgebrochen.
+Der Originalstandort muss noch gesucht werden.
+Was auffällt ist die geringe Entfernung beider Steine zueinander.
+So das wahrscheinlich nur einer der beiden Forststeine in der Nähe seines Originalstandortes lag.
+
+Eine Banngrenze verläuft dort nicht. 
+Banngrenzen werden mit den jeweiligen Anfangsbuchstaben der Orte angegeben. So das das A auf Stein Nr. 6 keine Ortsbezeichnung ist. 
+Eine Jahreszahl der Steinsetzung ist auf keinem der Steine zu erkennen. Auch nicht verwittert. 
+Es sind keine Richtungsweiser auf dem Kopf zu erkennen.
+Eine genauere Untersuchung muss noch vorgenommen werden. 
+
+Eine weitere oberflächliche Suche Richtung Straße hinab brachte keine weiteren Funde ähnlicher Steine. 
+Am Anfang der Forstgrenze direkt oberhalb der Landstraße wurde ein
+Stein aus anderem Material gefunden. Der neueren Datums ist.
+
+Ich habe nun den ganzen Waldrand bis zum Eichholz und Biringer Bann abgesucht.
+Gefunden habe ich dann noch drei Steine. Die Nummer Acht und dreizehn. Vor der Nummer Acht habe ich noch einen Stein gefunden an dem man Bearbeitungsspuren erkennt. Es könnte die Nummer sieben sein. Die eine Seite liegt noch in der Erde. Alleine ist er nicht heraus zu bekommen.
+
+Das Material aller gefunden Steine ist roter Sandstein. Der sehr weich ist. 
+Und ab der Nummer sieben sind die Steine alle größer als die Steine fünf und sechs. 
+Die Nummer dreizehn könnte die letzte Nummer dieser Seite des Großen Waldes sein. Er befindet sich kurz vor dem Ende dieser Seite.
+
+Am Rand des Eichholz zu Silwingen befinden sich auch Steine. Die aber noch nicht einmal Nummeriert sind. Zu den Forststeinen des Eichholzwird irgendwann später ein extra Thema erstellt.
+
+  
+
